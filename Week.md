@@ -1,0 +1,15 @@
+# Week 0
+
+I wanted to layout my journey of health as an encouragement for other people considering the Carnivore way of eating. This first post is just a description of my health and fitness leading up to my transition to a Carnivore way of eating. I'm guessing there will be other people who identify with my story.
+
+I grew up in a house where we learned to comfort ourselves with food. Whenever we felt bad, we ate. Whenever we celebrated, we ate. Food was always at the center of any family gathering. As an emotional kid I tended to eat a lot to make myself feel better. I remember pigging out at buffets. The thought makes me sick now but the reality is that I just wanted to feel better and food was the only thing that made me happy.
+
+I never remember ever being a fit kid. Many people talk about being really active and fit as a teenager and it was in their twentys and thirtys that they put on weight. I was fat since I was 5 years old. The situation only got worse as I continued to medicate my feelings with food. When I was 18 I weighed 265 lbs. at only 5' 6" tall.
+
+My health improved slightly when I wanted to play the lead part in a musical theather production but the Director told me that I was too heavy to play the part. Thankfully I had a year before they were going to cast the play. I spent that next year running almost every other day and eating a "healthy" diet (lean meats, rice, whole grains, outmeal, veggies, fruit). During the winter, when it was too cold and wet to run outside, I would step and and down some stairs in my families garage for 30 or 45 minutes at a time. I had some of the most unbelieveably painful shinsplints but I kept running because I was tired of being fat.
+
+I had a couple of really great coaches at my school who were real encouragements to me. Mr. Ball was the Cross Country coach and Mr. Meter was the basketball coach. My high school Cross Country Team did not cut people from the program so I was able to run with the team even though I was horrendously slow. I could barely manage a shuffle at first. I think my first two mile time was 32 minutes. Both Mr. Ball and Mr. Meter took time to coach me along and encourage me. I was unbelievably bad but they cheered me on.
+
+Of course, I was so sick and eating so poorly before this that any change would improve my health. I went from 265 lbs to 185 lbs in about 10 months. The change was dramatic. I got stretch marks from heaving that much mass up and down hills, and honestly, I'm proud of them. I worked crazy hard and it paid off. I did end up getting the part in the musical.
+
+After this I went to college. I stopped running regularily but I tried to continue to eat somewhat healthy. My weight went up slightly but stayed between 185 and 195 lbs. Eventually I found ballroom dancing and started dancing whenever I could. I dropped to about 155 lbs at this point but it wasn't a healthy 155. I was still soft around the middle and I wasn't as strong as I would like to be. I tried to get leaner by adding back running but nothing would budge that number.
